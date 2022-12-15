@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Ovsia
+- 👀 I’m interested in AI/ML/CV.
+- 🌱 I’m currently improving my poor programming skills...
+- ✨ I’m looking to collaborate on SHUFly.
+- 📫 2217174955mqy@gmail.com
