@@ -1,4 +1,1 @@
 - 👋 Hi, I’m @Ovsia
-- 👀 I’m interested in many things
-- 🌱 Currently improving my poor programming skills...
-- ✨ Looking to collaborate on SHUFly.
